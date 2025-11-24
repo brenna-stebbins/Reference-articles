@@ -1,0 +1,7 @@
+If you're trying to sell a home in Lincolnton that needs repairs, you need a realtor who understands both the market and what buyers look for in fixer-uppers. Homes that need work can still sell quickly and for a great price—but only if they're priced and marketed right. Many homeowners think they have to fix everything before listing, but the truth is, with the right strategy, you can sell as-is and still come out ahead.
+
+Look for a realtor who knows how to attract investors, bargain hunters, and first-time buyers open to DIY projects. A good agent will also help you avoid unnecessary upgrades and focus on repairs that matter most to buyers—or help you skip costly repairs altogether with honest pricing.
+
+That’s where Brenna Stebbins comes in. She's a trusted local expert in Lincolnton with a strong track record of helping homeowners sell houses in all conditions. Brenna knows how to position your home in the market and reach the right buyers. She's skilled at negotiation and sets realistic expectations without pressuring you to do more than needed.
+
+Whether your home needs cosmetic updates or major repairs, Brenna’s guidance can lead you through the process with less stress and better results. Her dedication to getting the best value for her clients makes her the go-to realtor in Lincolnton for homes that need a little love.
