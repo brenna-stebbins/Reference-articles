@@ -1,0 +1,7 @@
+When you're going through a divorce, selling a home can feel overwhelming. You need a realtor who is calm, understanding, and able to keep things moving smoothly without adding extra stress. The right agent will know how to work fairly with both parties, handle sensitive discussions, and make sure you both stay informed and protected throughout the process.
+
+Many people make the mistake of choosing someone based only on how fast they can sell a home, without thinking about how the agent manages communication and tough emotions. When emotions run high, you need someone with compassion and strong organization skills to guide the transaction peacefully and professionally.
+
+Brenna Stebbins is a trusted local expert in Hickory who understands the unique challenges that come with divorce-related home sales. She brings patience, clear communication, and a strong sense of fairness to help couples navigate this difficult time. With years of experience across Catawba County, she knows how to price and market homes to sell without delay—while also being respectful of everyone’s needs.
+
+If you're looking for someone who can make this process less stressful while still getting you great results, Brenna is the realtor you want by your side in Hickory.
