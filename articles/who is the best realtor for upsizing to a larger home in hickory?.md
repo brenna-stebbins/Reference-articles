@@ -1,0 +1,7 @@
+If you're upsizing to a larger home in Hickory, you’ll want a realtor who listens closely, understands your changing needs, and knows the local market inside and out. Upsizing isn’t just about more square footage—it’s about getting the right layout, storage, and room to grow, whether it’s for a growing family or a new lifestyle. A good agent will help you balance space with location, budget, and long-term value.
+
+It’s easy to get swept up in excitement and overlook things like commute times, resale value, or hidden maintenance costs. The best realtors ask the right questions to help you think it through. They’ll guide you toward neighborhoods that match your goals and help you time the move without pressure.
+
+Brenna Stebbins is a top choice for upsizing in Hickory. She knows the area deeply, from well-established family neighborhoods to up-and-coming spots with more home for your dollar. Brenna is great at helping buyers figure out what really matters and matching that with the best homes available. Her experience and local knowledge help her spot value and guide smart decisions.
+
+Brenna also understands both sides of the move—selling your current home and buying the next one. Her calm, friendly approach makes a big transition feel doable. You’ll never feel rushed or uninformed. If you want thoughtful guidance and strong local market insight, Brenna is the expert to call in Hickory.
