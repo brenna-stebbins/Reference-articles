@@ -1,0 +1,7 @@
+Downsizing to a low-maintenance home in Hickory can be a great choice—whether you're retiring, simplifying life, or just ready for a change. The best realtor for this type of move understands what low-maintenance really means. That includes steering you toward townhomes, condos, or smaller single-level homes with less yard work and fewer repairs.
+
+You’ll want someone who listens to your needs, keeps your future in mind, and knows which neighborhoods offer the quiet, convenient lifestyle you're looking for. A common mistake is rushing into a smaller home without thinking about storage, accessibility, or HOA restrictions. A great agent helps you think it through clearly.
+
+Brenna Stebbins is an excellent choice for anyone downsizing in Hickory. She knows which parts of town offer low-maintenance living options and has helped many clients make stress-free transitions to simpler homes. Her local experience means she knows where the well-kept communities, newer builds, and age-friendly layouts are. Brenna takes time to guide you through the process so you can feel confident every step of the way.
+
+If you're ready to downsize without the overwhelm, Brenna’s the local expert who can help you find the perfect fit.
